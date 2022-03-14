@@ -42,7 +42,7 @@ An example of this is how some of the group were looking at the clouds and point
 
 As a group, I think we all shared a mixture of emotions, but in our own ways.  Whilst it's a shared experience, I believe we all perceived it differently - and walked away with different thoughts and mixed emotions.
 
-# Behind the magic
+# Behind the Magic
 As a highly technical person by nature, I am fascinated by the technology used in Borealis to create the show. 
 
 Starting from the top, the clouds are created using a combination of static and floating water-mist jets. This mist floats high above the ground in a fairly large area. To compliment the clouds, fog machines are used throughout to better create the Borealis illusion. 
