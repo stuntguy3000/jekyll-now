@@ -8,11 +8,11 @@ For 2022, Laugh Lab, hosted in Adelaide's premiere comedy club - The Rhino Room,
 ![Adelaide Fringe](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/Adelaide_Fringe_logo_%282018%29.svg/320px-Adelaide_Fringe_logo_%282018%29.svg.png "Adelaide Fringe")
 
 # Laugh Lab 2022
-Laugh Lab is a two and a half-hour show with the promise to introduce audiences to a variety of new and upcoming comedians. The show rotates through a selection of random comedians, hosted by an MC who runs through the evening.
+Laugh Lab is a two-and-a-half-hour show with the promise to introduce audiences to a variety of new and upcoming comedians. The show rotates through a selection of random comedians, hosted by an MC who runs through the evening.
 
 This year, I got to experience Laugh Lab for the first time with friends. Our session was hosted by [Rudy-Lee Rudes Taurua](https://www.instagram.com/rudyboy91/?hl=en), a beautiful loud mouth head-tattooed man full of bogan charisma. Safe to say, we walked into the show with no idea what we were getting into.
 
-Rudy did his introduction, and we were all nervously laughing along - feeling a level of confusion, regret but also somewhat intrigued about what's next to come. Over the next two hours, we got to see a handful of amazing, awkward and unique comedians doing their best to make us laugh. It's safe to say, we were all blown away by the comics. Apart from the occasional flop, the jokes were solid, the variety was as big as it gets.
+Rudy did his introduction, and we were all nervously laughing along - feeling a level of confusion, and regret but also somewhat intrigued about what's next to come. Over the next two hours, we got to see a handful of amazing, awkward and unique comedians doing their best to make us laugh. It's safe to say, we were all blown away by the comics. Apart from the occasional flop, the jokes were solid, the variety was as big as it gets.
 
 We enjoyed being able to attend an open mic night show and being able to support the local and upcoming comedy scene was something special.
 
